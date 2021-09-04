@@ -1,1 +1,1 @@
-I'm the chosen one, seen my potential so they fear me 🌀
+Discord : sleezy#0202
